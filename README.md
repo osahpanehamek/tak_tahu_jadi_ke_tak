@@ -1,0 +1,1 @@
+# tak_tahu_jadi_ke_tak
